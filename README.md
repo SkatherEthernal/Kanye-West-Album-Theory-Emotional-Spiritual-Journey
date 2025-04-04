@@ -28,6 +28,8 @@ Overall:
 I believe Kanye's albums follow a deep personal journey. From a hopeful start in the College Trilogy, to heartbreak, sin, redemption, grief, and spiritual battle. Whether it’s a dream, a metaphor, or reality, each album reveals a layer of his soul and life story.
 
 made by: SkatherEthernal201 and chat gpt
+
+
 reddit: ReserveDangerous3196
 tiktok: SkatherEthernal201
 my sec tiktok acc: zombie751
