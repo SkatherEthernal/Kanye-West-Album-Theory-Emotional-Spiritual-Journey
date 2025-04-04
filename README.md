@@ -31,5 +31,9 @@ made by: SkatherEthernal201 and chat gpt
 
 
 reddit: ReserveDangerous3196
+
+
 tiktok: SkatherEthernal201
+
+
 my sec tiktok acc: zombie751
